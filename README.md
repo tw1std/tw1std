@@ -1,7 +1,7 @@
 <p align="center"> <img src=https://64.media.tumblr.com/27fd0cec23e2f48a74a2264d96d28490/ee09abb08cabc6f1-a8/s1280x1920/7ebb470064b853e7f3db60bb3f8d7bb5b2f9d993.pnj> </p>
 <p align="center"> <img src=https://komarev.com/ghpvc/?username=tw1std&color=red&abbreviated=true&style=flat-square)> </p>
 <p align="center"> <img src=https://64.media.tumblr.com/ba385f426e74d0ae1757552dc93191f9/4a5b102a6b6ba960-4d/s1280x1920/38989e18b366c1afe19142bd9e9728d56a2c2cdf.pnj> </p>
-<p align="center"> <img src=https://64.media.tumblr.com/66e895326b85795d204cb7157ffb74f0/069bd55dd785967d-8b/s540x810/9ba36ab43960377bac941a2d4adec7e09fb054ba.pnj> </p>
+<p align="center"> <img src=https://64.media.tumblr.com/d671b2a576f003055b37ff208d9e03da/527c471a48344a66-02/s540x810/9ad1ecc2e4adf440f9133f08fb8dc67e7d4276be.pnj> </p>
 <p align="center"> <img src=https://64.media.tumblr.com/4dd59d4f36b6ca73c7bba40cb9ae0d56/043b9f9d8b88d465-f4/s1280x1920/f895dea9062c99027e2127282194d986347c5d58.pnj> </p>
 <p align="center"> <img src=https://64.media.tumblr.com/aa4d98ad2ddd4ee571be4fc9123a29b2/87eb9dbf53ddda9c-a1/s75x75_c1/621939d3c6804007927bfed96c14ffa6c6722016.gifv width="40" height="40"> Max(ime)/Megan/Twist ✿ 5teen ✿ mlt/alb/eng <img src=https://64.media.tumblr.com/d971a786179a323e7c89aa20fc3b8e65/87eb9dbf53ddda9c-f0/s75x75_c1/e44e9a5a2aa33cacdbc904a6095f88401f03d1ff.gifv width="40" height="40"> </p>
 <p align="center"> <img src=https://64.media.tumblr.com/ba385f426e74d0ae1757552dc93191f9/4a5b102a6b6ba960-4d/s1280x1920/38989e18b366c1afe19142bd9e9728d56a2c2cdf.pnj> </p>
